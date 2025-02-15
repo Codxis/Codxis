@@ -25,6 +25,7 @@ My **special talent**? 🎤 **Voice acting!** Imagine a game where I not only co
 🔮 **Mission:** Keep innovating, keep dreaming, and keep pushing the boundaries of tech!  
 
 ---
+![Retro Futuristic](https://i.pinimg.com/736x/fa/10/d9/fa10d98b2189aa1fa780fd183965bf82.jpg)
 
 💾 **Stay rad, stay futuristic.** See you in the **mainframe**! 👽⚡  
 
